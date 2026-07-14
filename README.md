@@ -1,6 +1,6 @@
-Hi, I’m Muddkipper and I use She/They pronouns
-I’m interested in Simracing, Coding and Making Music.
-I’m currently learning How to code in python and also doing robotics in school 
+Hi, I’m Muddkipper and I use She/her pronouns
+I’m interested in coding and shi although I'm not very good
+I know my way around python, HTML and CSS
 You can reach me with this email ---> Muddkipper@cybergal.com
 
 
